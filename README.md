@@ -1,0 +1,2 @@
+# YoCoins
+Crypto du futur
